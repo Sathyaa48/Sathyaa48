@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Sathyaa48
+- 👀 I’m passionate about design,AI,data science
+- 💞️ I strive to leverage my creativity and problem-solving abilities in collaborative environments
+- 😄 Pronouns: She/her
